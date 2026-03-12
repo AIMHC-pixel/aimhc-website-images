@@ -1,0 +1,1 @@
+# aimhc-website-images
